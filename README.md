@@ -1,1 +1,1 @@
-I really like cats and puffins. 
+I really like cats and puffins. Puffins are **cool.**
